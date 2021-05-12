@@ -8,5 +8,5 @@
 - 🤔 I’m looking for help with ... coming soon..
 - 💬 Ask me about ... Sequential modeling, Multimodal modeling
 - 📫 How to reach me: ... [Linkedin](https://linkedin.com/in/nasib-ullah-103b4923)
-- 😄 Pronouns: ... 
+- 😄 Pronouns: ... him
 - ⚡ Fun fact: ... My favorite time of day is night
